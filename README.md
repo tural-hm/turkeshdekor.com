@@ -1,2 +1,1 @@
 # turkeshdekor.com
-# turkeshdekor.com
